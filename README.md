@@ -47,7 +47,8 @@ Indian Model United Nations (INMUN): Selected as a Diplomatic Delegate represent
 Rotary Interact Club Network: High-impact Active Member within the school’s core community service and leadership framework, executing peer drives and civic campaigns.
 
 5. Global Competitions, Creative Expression & Performing Arts
-Global Literary & Research Track: Challenged advanced pre-university fields by independently entering premier global writing circuits, delivering rigorous research essays for the Oxbridge-vetted Immerse Education forum alongside contemporary creative submissions for the Monomousumi international literary platform. 
+Global Literary & Research Track: Challenged advanced pre-university fields by independently entering premier global writing circuits, delivering rigorous research essays for the Oxbridge-vetted Immerse Education forum alongside contemporary creative submissions for the Monomousumi international literary platform. Earned a prestigious 15% scholarship in the Immerse Education Essay Competition 2026, placing in the top 7% globally out of thousands of applicants through exceptional research and academic writing.
+ 
 
 Published Author (3 Books): Successfully wrote, completed, and published 3 distinct standalone contemporary youth books ‘Flowers in Bloom’, ‘Where Quiet Things Stay’, and ‘Things She Never Said Out Loud’ through the BriBooks Young Author Platform, launching creative narratives into the borderless digital marketplace.
 
